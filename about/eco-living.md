@@ -27,7 +27,7 @@ We use biodegradable, environmentally friendly cleaners at Anahata.
 
 ### Ecological Work
 
-```Hi atma```
+```Hi atma pporna```
 
 Caretakers of Native Bush
 ----------------------------
