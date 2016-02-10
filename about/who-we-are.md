@@ -1,6 +1,6 @@
-SWAMI KARMA KARUNA - affiliated SATYANANDA YOGA® teacher
-=============================================================
-
+SWAMI KARMA KARUNA 
+----------------------
+- affiliated SATYANANDA YOGA® teacher
 
 Swami Karma Karuna is a founding member and director of Anahata Yoga Retreat, New Zealand, and a dedicated, intuitive yoga teacher with years of experience working with a wide range of people. From an early age, she traveled exploring diverse spiritual traditions; finally dedicating herself to the yogic path, guided by Swami Niranjanananda Saraswati, world-wide head of the Satyananda Yoga Movement.
 
@@ -10,16 +10,21 @@ By combining yogic lifestyle and Sannyasa tradition with family life, Swami Karm
 
 In 2007 Swami Karma Karuna released her first yoga and meditation CD called Yoga Solutions for Life™ – Essential Daily and Deepening Practices designed to develop a simple daily practice enhancing health and relaxation. In October 2007, a second CD focused on the chakras and seed sounds was released. Click here for CDs.
 
-SANNYASIN DIVYAJYOTI - affiliated SATYANANDA YOGA® teacher
+SANNYASIN DIVYAJYOTI
 =====================================================================
+- affiliated SATYANANDA YOGA® teacher
 
 
-Sannyasi Divyajyoti is a founding member of Anahata Yoga Retreat. She has lived between the Satyananda ashrams in Australia and Anahata over the past several years, also regularly travelling to India.
+Sannyasi Divyajyoti is a founding member of Anahata Yoga Retreat. She 
+has lived between the Satyananda ashrams 
+in Australia and Anahata over the past several years, also regularly travelling to India.
 
-She has a yoga teaching diploma from the Satyananda Yoga Academy Australasia. Divyajyoti also holds a certificate in advanced permaculture and has lead yoga ecology courses and eco projects at Anahata and in Australia.
+She has a yoga teaching diploma from the Satyananda Yoga Academy Australasia. Divyajyoti 
+also holds a certificate in advanced permaculture and 
+has lead yoga ecology courses and eco projects at Anahata and in Australia.
 
 SANNYASIN ATMABHAVA - affiliated SATYANANDA YOGA® teacher
-
+=========================================================
 
 Sannyasin Atmabhava has been a core member of Anahata Yoga Retreat since 2003 and has completed a 3-year teacher training course with the Satyananda Yoga Academy Australasia. In spring 2007 he made his first pilgrimage to the heart of Satyananda Yoga in India, assisting on the Chakra Sadhana Course.
 
