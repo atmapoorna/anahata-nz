@@ -25,10 +25,14 @@ Anahata has three composting toilets, helping to minimize water usage. The compo
 #### Green Cleaning
 We use biodegradable, environmentally friendly cleaners at Anahata.
 
-Ecological Work
+### Ecological Work
+
+```Hi atma```
 
 Caretakers of Native Bush
-Anahata is committed to care take the land and the old growth indigenous forest that covers most of the property, taking into account the environmental impact of any new buildings or developments.
+----------------------------
+
+**Anahata** git commit -a - is committed to care take the land and the old growth indigenous forest that covers most of the property, taking into account the environmental impact of any new buildings or developments.
 
 Falcon
 
